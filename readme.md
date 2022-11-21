@@ -1,0 +1,1 @@
+bu dosya DE ilk remote projesi hakkinda
